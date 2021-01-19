@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Hundo Soly
+2. GEB man
